@@ -12,6 +12,6 @@ Features:
 
 I hope everything will work fine for you !
 
-Here's my discord if you need anything: TheCEOツ#9895
+Here's my discord if you need anything: TheCEO#9895
 
 I'm working on the new update already so stay tunned !
